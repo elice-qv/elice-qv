@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on IT HoReCa<br>👯 I’m looking to collaborate on web-development, e-commerce dev<br>🌱 I’m currently learning Quran and Holy Bible<br>💬 Ask me about all in my telegram<br>⚡ Fun fact My cat can write code
+🔭 I’m currently working on IT HoReCa<br>👯 I’m looking to collaborate on web-development, e-commerce dev<br>🌱 I’m currently learning vibe coding <br>💬 Ask me about all in my telegram<br>⚡ Fun fact: I'm not a fun fact
 
 
 ## 🌐 Socials:
