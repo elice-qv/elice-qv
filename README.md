@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on IT HoReCa<br>👯 I’m looking to collaborate on food tech, e-com, adult tech projects <br>🌱 I’m currently learning vibe coding <br>💬 Ask me about all in my [telegram](https://t.me/magejs)<br>⚡ Fun fact: I'm not a fun fact
+🔭 I’m currently working on IT HoReCa<br>👯 I’m looking to collaborate on food tech, e-com, adult tech projects <br>🌱 I’m currently learning vibe coding <br>💬 Dont ask me anything [telegram](https://t.me/magejs)<br>⚡ Fun fact: I'm not a fun fact
 
 
 ## 🌐 Socials:
